@@ -1,2 +1,2 @@
 # What is this?
-A personal wallpaper collection!
+A personal image collection!
